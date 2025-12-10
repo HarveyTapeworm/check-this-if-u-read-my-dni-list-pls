@@ -1,4 +1,5 @@
 # INFO ✷ // ***ALMOST OUTDATED INFORMATION. DO NOT TAKE HALF OF THE INFORMATION HERE SERIOUSLY.***
+https://komarev.com/ghpvc/?username=ghostycapgras&color=blue
 its only takes a reason to kill
 ***
 hello !
